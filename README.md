@@ -8,6 +8,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - [Veuve Clicquot Brut Yellow Label]: I know this is mainstream, but I really like the high acidity, persistent bubbles, deep flavors of citrus and oak.
 - Caymus Cabernet: Crowd pleaser as well, but sewet, pine, wax, earth, mushroom, and stewed fruits. Excellent expression of Napa.
 - La Rioja Alta Vina Alberdi: Great expression of Tempranillo for only $25.
+- Ramey Wine Cellars Chardonnay: Flavor explosion, very acidic and tasty, great fruit expression. Malolactic fermentation is buttery, but not overwhelming. Available in California Costco for $35.
 
 ## Sake
 

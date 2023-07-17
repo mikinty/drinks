@@ -31,6 +31,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 ## Sake
 
 - [Toko Ginga Divine Droplets](https://www.vineconnections.com/japanese-sake/grades/junmai-daiginjo-daiginjo/divine-droplets/): Slightly sparkling, clean, fruity, floral -- serve chilled and it goes great with sushi and any lighter-flavored meal.
+- Akabu Junmai Daiginjo "Gokujo no Kire": Wow this sake ROCKS. So fresh, so much flavor, so fruity...so much goodness. ~$165.
 
 ## Beer
 

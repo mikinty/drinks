@@ -15,9 +15,11 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 ### Red
 
 - La Rioja Alta Vina Alberdi: Great expression of Tempranillo for only $25.
+- [Turley](https://www.turleywinecellars.com/): Their Zinfandel is amazing. Even their Juvenile, for around $25, is great. Their single vineyard wines are worth trying.
 - [Odoardi: Giovan Battista (GB)](https://www.cantineodoardi.it/prodotto/gb-odoardi/): big, savory, oily wine that goes will with all tasty foods. Great expression of Southern Italy. ~$50.
 - Merry Edwards Pinot Noir: Really loved how juicy and concentrated the fruits were. ~$60.
 - Caymus Cabernet: Crowd pleaser as well, but sewet, pine, wax, earth, mushroom, and stewed fruits. Excellent expression of Napa. ~$80.
+- [Williams Selyem](https://www.williamsselyem.com/): Their Pinot is so gamey, wild, savory...it's really good. Wine making is very strong. Their Pinots start around $90.
 - Château Smith Haut-Lafitte: Who doesn't like this classic from Graves, Pessac-Léognan? ~$125.
 - Vice Versa: Great Cabernet Sauvignon from Napa. ~$160.
 - Tignanello: Grippy tannins, full bodied fruit flavor. It's amazing wine, and yes it's mainstream. ~$180.

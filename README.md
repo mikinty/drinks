@@ -40,3 +40,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 
 - Kirin Ichiban: Seems like beer fanatics are not about this, but I like how crisp and clean this beer is.
 - Flower Power from the Ithaca Beer Co: Unsure why I remember this so much and like it, but it's good.
+
+## Whiskey
+
+- Lagavulin 16 or the 11 Offerman Edition I like a lot. For me it's the perfect balance of sweet, peatiness, smoke and intensity. Obviously to each their own, but this is the one I can drink neat, with ice, or in a cocktail (whiskey sour preferred)

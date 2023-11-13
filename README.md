@@ -26,10 +26,12 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Vice Versa: Great Cabernet Sauvignon from Napa. ~$160.
 - Tignanello: Grippy tannins, full bodied fruit flavor. It's amazing wine, and yes it's mainstream. ~$180.
 - Kongsgaard Cabernet: Wild, earthy, old vine flavor. Really liked the wine and just how interesting it is. ~$200.
+- August Clape Cornas: This is classic Northern Rhone and it's so sophisticated and the berries, both dried and smokey give that long lasting flavor. ~$200
 - [Château Lafite Rothschild](https://www.lafite.com/domaines/chateau-lafite-rothschild/): The crowned big whig of all the wine world, and also mainstream. But this is what got me into wine, so I have to put it here. It's elegant, oily, and evolves with time, a classic to behold.
 - [Promontory](https://www.promontory.wine/): Man this wine is incredible. I throw my hands up in disbelief what Mr. Harlan has created. ~$1000+.
 
 ### Other
+
 - Dow's Vintage Port: ~$80.
 
 ## Sake

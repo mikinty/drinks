@@ -5,13 +5,15 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 ## Wine
 
 ### Sparkling
+
 - Cascinetta Vietti Moscato d'Asti: Sweet sparkling wine, very tasty and wine novice friendy. ~$15
 - Bollinger Special Cuvee Brut NV: Delicious Champagne, toasty and lots of complexity. Wallet friendly. ~80.
 
 ### White
+
 - Ramey Wine Cellars Chardonnay: Flavor explosion, very acidic and tasty, great fruit expression. Malolactic fermentation is buttery, but not overwhelming. Available in California Costco for $35.
 - Moreau-Naudet Chablis: Very minerally, dried hay, intense. This is such a serious wine for its price, and a good introduction to complex Burgundies. $35
-- Francois Chidaine Les Bournais: Super tasty chenin blanc from the Loire valley. ~40
+- Francois Chidaine Les Bournais: Super tasty chenin blanc from the Loire valley. ~$40
 - Luis A. Rodriguez Vazquez _A Teixa Ribeiro_: Delicious, floral and creamy aromas with fresh fruit. Medium body and med+ flavor. $40.
 - Jermann Where Dreams have no end: Such an artistic wine, amazing, sharp smells, and you can barely tell this is Chardonnay. ~$60.
 - Chateau Montelena Chardonnay: Really ripe and rounded Chardonnay, not too buttery. ~$60.
@@ -42,7 +44,9 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 
 ## Sake
 
-- [Toko Ginga Divine Droplets](https://www.vineconnections.com/japanese-sake/grades/junmai-daiginjo-daiginjo/divine-droplets/): Slightly sparkling, clean, fruity, floral -- serve chilled and it goes great with sushi and any lighter-flavored meal.
+- [Toko Ginga Divine Droplets](https://www.vineconnections.com/japanese-sake/grades/junmai-daiginjo-daiginjo/divine-droplets/): Slightly sparkling, clean, fruity, floral -- serve chilled and it goes great with sushi and any lighter-flavored meal. ~90
+- Dewazakura Karesansui 3 Years Old: Very well-balanced and aged sake that has a complex and long lasting flavor. ~$120.
+- Umenishiki Junmai Daiginjo: I accidentally aged this in bottle for 3 years, and it tasted very similar to the Dewazakura 3 years. Very intense and thick fruit flavor, a pleasure to smell. ~$120.
 - Akabu Junmai Daiginjo "Gokujo no Kire": Wow this sake ROCKS. So fresh, so much flavor, so fruity...so much goodness. ~$165.
 
 ## Beer

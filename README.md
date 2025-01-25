@@ -19,6 +19,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Far Niente Napa Valley Chardonnay: If you want a more serious Napa Chardonnay, good oak balance, old vine flavor and that dried grass herbal flavor. This is your wine. $60.
 - Chateau Montelena Chardonnay: Really ripe and rounded Chardonnay, not too buttery. ~$60.
 - Prager: The Gruner Veltliner are so vibrant, intense fruit, slight smoke and long finish. ~$80.
+- Emrich-Schonleber - Fruhlingsplatzchen Riesling Grosses Gewachs:  Really intense flavors, fresh and vibrant. Very tasty and long finish. ~$85.
 - Kongsgaard Chardonnay: While the Judge is more well-known, this (much) cheaper Chardonnay still has the intense funky native yeast and old vine flavor Kongsgaard is known for. Very interesting and serious wine. ~$125.
 - Caroline Morey: She has many wines. I've only tried the Premier Cru ones and they are already really good. ~$250
 - Jean-Claude Ramonet Montrachet Grand Cru: The smells and flavor on this is crazy. ~$2500.

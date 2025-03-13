@@ -72,3 +72,9 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Doppelgänger from [The Dead Rabbit](https://thedeadrabbit.com/): In their own words "Here’s another of our new Parlor cocktails, also from the ‘Manhattan’ section of our menu. Chocolatey and floral, the Doppelgänger encapsulates the intricate process behind the creation of its base ingredient, a homemade Walnut Stout Vermouth. First, we make our own Guinness clone, adding foraged Green Walnuts during the primary fermentation stage, which impart a distinctive character. After the beer reaches maturation, we add a blend of Black Walnuts, Calendula, Field Ivy, Wormwood, and Marigold Greens - stirred down with Keeper’s Heart Irish + Bourbon Whiskey, Stauning Rye Whiskey, and Apricot. Nutty, roasted grains are the highlight here - a somewhat traditional classic cocktail with an extra Fall flourish"
   - Dead Rabbit also has a lot of other good drinks and if you like whiskey-based cocktails I think this is the best in NYC
 - Tea Ceremony at [Martiny's](https://www.martinys.com/): Ceremonial matcha and whiskey cocktail, really really good
+
+Generally I am a very classic cocktail person, so these drinks will make me happy:
+- Last Word
+- Manhattan
+- Whiskey Sour
+- Highball

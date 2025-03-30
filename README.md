@@ -4,6 +4,8 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 
 ## Wine
 
+- [Bordeaux List](./bordeaux.md): Wanted to make my own Bordeaux tier list
+
 ### Sparkling
 
 - Cascinetta Vietti Moscato d'Asti: Sweet sparkling wine, very tasty and wine novice friendy. ~$15

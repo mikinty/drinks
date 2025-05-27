@@ -10,6 +10,9 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 
 - Cascinetta Vietti Moscato d'Asti: Sweet sparkling wine, very tasty and wine novice friendy. ~$15
 - Bollinger Special Cuvee Brut NV: Delicious Champagne, toasty and lots of complexity. Wallet friendly. ~80.
+- Krug Vintage: I've only had the pleasure of having the 2004. Chocolatey, cocao-ey, deep, wood, serious champagne. ~$350
+  - The yearly editions are also good, but hit or miss IMO, ~$200
+- Pol Roger Winston Churchill: Super fragrant, big champagne. ~$380
 
 ### White
 

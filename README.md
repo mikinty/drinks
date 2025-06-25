@@ -74,12 +74,19 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Speyside Sour from [French 75 in NOLA](https://www.arnaudsrestaurant.com/bars/french-75/): This is basically a whiskey sour shaken with egg, except you use 1/2 bourbon and 1/2 scotch for the whiskey portion.
   - A variation on this drink I make at home is 4:2:1:1 parts of Whiskey:Orange Juice:Lemon Juice:Syrup. Shake egg white with ingredients before adding ice and shaking again.
 - Copa de Bomba from [French 75 in NOLA](https://www.arnaudsrestaurant.com/bars/french-75/): Tequila based
-- Doppelgänger from [The Dead Rabbit](https://thedeadrabbit.com/): In their own words "Here’s another of our new Parlor cocktails, also from the ‘Manhattan’ section of our menu. Chocolatey and floral, the Doppelgänger encapsulates the intricate process behind the creation of its base ingredient, a homemade Walnut Stout Vermouth. First, we make our own Guinness clone, adding foraged Green Walnuts during the primary fermentation stage, which impart a distinctive character. After the beer reaches maturation, we add a blend of Black Walnuts, Calendula, Field Ivy, Wormwood, and Marigold Greens - stirred down with Keeper’s Heart Irish + Bourbon Whiskey, Stauning Rye Whiskey, and Apricot. Nutty, roasted grains are the highlight here - a somewhat traditional classic cocktail with an extra Fall flourish"
+- Dead Rabbit Cocktails (Parlour room, downstairs is good too):
+  - Doppelgänger from [The Dead Rabbit](https://thedeadrabbit.com/): In their own words "Here’s another of our new Parlor cocktails, also from the ‘Manhattan’ section of our menu. Chocolatey and floral, the Doppelgänger encapsulates the intricate process behind the creation of its base ingredient, a homemade Walnut Stout Vermouth. First, we make our own Guinness clone, adding foraged Green Walnuts during the primary fermentation stage, which impart a distinctive character. After the beer reaches maturation, we add a blend of Black Walnuts, Calendula, Field Ivy, Wormwood, and Marigold Greens - stirred down with Keeper’s Heart Irish + Bourbon Whiskey, Stauning Rye Whiskey, and Apricot. Nutty, roasted grains are the highlight here - a somewhat traditional classic cocktail with an extra Fall flourish"
+  - Electric Momisette: super basil syrup concentrated fruit drink
+  - Irish Coffee: best in the world, better than Ireland
   - Dead Rabbit also has a lot of other good drinks and if you like whiskey-based cocktails I think this is the best in NYC
-- Tea Ceremony at [Martiny's](https://www.martinys.com/): Ceremonial matcha and whiskey cocktail, really really good
+- Martiny's:
+  - Tea Ceremony at [Martiny's](https://www.martinys.com/): Ceremonial matcha and whiskey cocktail, really really good
+  - Mole Grenada: savory and sweet and foamy and delicious
+  - Grand Martiny: wine + martini
+- Vesper Bar at the Dorchestor (London): The Vesper
 
 Generally I am a very classic cocktail person, so these drinks will make me happy:
 - Last Word
-- Manhattan
 - Whiskey Sour
+- Manhattan
 - Highball

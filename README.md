@@ -37,6 +37,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Merry Edwards Pinot Noir: Really loved how juicy and concentrated the fruits were. ~$60.
 - Château Langoa-Barton: Deep fruit, very ripe, thick candle-like aromas. Good minerality and elegant. A joy to drink. ~$60.
 - Chateau de Nalys Chateauneuf-du-Pape: I like how fragrant, cocao, tobacco, slightly muted blueberry and blackberry, medium tingly, dancing tannins, long lasting mouth feel. It's very nice, not too big, and just makes me feel happy. Got for $67 at Costco, which is a steal.
+- Johann Michel "Cuvée Jana" Cornas: Had the 2015 vintage, but super meaty, smoky, dusty, big wine. Would go really well with bbq or gamey meats. ~$80.
 - Caymus Cabernet: Crowd pleaser as well, but sewet, pine, wax, earth, mushroom, and stewed fruits. Excellent expression of Napa. ~$80.
 - [Williams Selyem](https://www.williamsselyem.com/): Their Pinot is so gamey, wild, savory...it's really good. Wine making is very strong. Their Pinots start around $90.
 - Château Smith Haut-Lafitte: Who doesn't like this classic from Graves, Pessac-Léognan? ~$125.

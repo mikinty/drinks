@@ -22,6 +22,7 @@ Partly inspired by [Troy's Tasting Room's Bordeaux Tier list for 1st and 2nd gro
 * Château Canon-la-Gaffelière: Powerful wine 
 * Château Grand-Puy-Lacoste: Too smoky and not enough fruit for me. But still an excellent wine
 * Château Duhart-Milon: Pretty good Pauillac. Unmistakable sweet tobacco, slight smoke, earth, and lots of fruit. Tertiary a bit oily and almost truffle but just slightly. Not as fragrant as Lafite. On the palate, pretty light honestly. Not as tasty as the top Bordeaux wines, but still very good.
+* Château Léoville Barton: Had the 2000 vintage in '25. Thought the wine was serious, tasty and silky. But for $200 it definitely feels overpriced. I'm surprised because Langoa-Barton feels like the tastier wine out of the two, although maybe you can argue Léoville Barton is more refined and serious?
 
 ## C Tier
 

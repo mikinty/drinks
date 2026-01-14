@@ -26,6 +26,7 @@ Partly inspired by [Troy's Tasting Room's Bordeaux Tier list for 1st and 2nd gro
 
 ## C Tier
 
+* Chateau Belregard-Figeac: Had the 2017, light, good smells but not concentrated, tobacco smoke bramble blueberry blackberry. Light on the mouth and light tannins. It's pretty close to water but it will get you to a good time.
 * Château Smith Haut-Lafitte Le Petit Haut Lafitte: Very bold and big, fruits are not totally ripe but lots of blueberry and blackberry. There is strong graphite and the finish is med. very good wine especially for the price.
 * Château La Gurgue: There is a lot of flavor in this wine. Very thick texture from oak, giving mushroom and wood and especially graphite notes. On the nose way less red fruit and a lot more black fruit. I do think it is a bit rough, eg very big but not precise and while good with food, as a standalone wine I think it is too rough to say it is a very good wine.
 * Clos de la Cure: Semi ripe fruit, distinguished strawberry and cherry, more red fruits than darker ones, which are harder to pick out, besides blueberry. Some vanilla and cream from aging, a bit of some floral notes probably rose, and I wanna say there are some forest floor and slight herbal notes, but can't figure them out. On the palate, really dry but smooth ish tannins. Almost chewy because the tannins stick around for a while. Medium acidity and the finish is medium as well. Overall a very well produced wine!

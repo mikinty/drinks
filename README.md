@@ -36,6 +36,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - [Odoardi: Giovan Battista (GB)](https://www.cantineodoardi.it/prodotto/gb-odoardi/): big, savory, oily wine that goes will with all tasty foods. Great expression of Southern Italy. ~$50.
 - Merry Edwards Pinot Noir: Really loved how juicy and concentrated the fruits were. ~$60.
 - Château Langoa-Barton: Deep fruit, very ripe, thick candle-like aromas. Good minerality and elegant. A joy to drink. ~$60.
+- Desparada Red Blend Soothsayer: Super ripe, tasty, good body, intense. ~$60. 
 - Chateau de Nalys Chateauneuf-du-Pape: I like how fragrant, cocao, tobacco, slightly muted blueberry and blackberry, medium tingly, dancing tannins, long lasting mouth feel. It's very nice, not too big, and just makes me feel happy. Got for $67 at Costco, which is a steal.
 - Johann Michel "Cuvée Jana" Cornas: Had the 2015 vintage, but super meaty, smoky, dusty, big wine. Would go really well with bbq or gamey meats. ~$80.
 - Caymus Cabernet: Crowd pleaser as well, but sewet, pine, wax, earth, mushroom, and stewed fruits. Excellent expression of Napa. ~$80.

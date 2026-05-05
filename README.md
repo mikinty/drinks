@@ -61,6 +61,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Dewazakura Karesansui 3 Years Old: Very well-balanced and aged sake that has a complex and long lasting flavor. ~$120.
 - Umenishiki Junmai Daiginjo: I accidentally aged this in bottle for 3 years, and it tasted very similar to the Dewazakura 3 years. Very intense and thick fruit flavor, a pleasure to smell. ~$120.
 - Akabu Junmai Daiginjo "Gokujo no Kire": Wow this sake ROCKS. So fresh, so much flavor, so fruity...so much goodness. ~$165.
+- Hanabi Hate Nishiki Sake: Fresh, intense melon, pear flavor. Very nice, had at Katsu in MTV. ~$200 retail I'm guessing (although hard to get in US) because $400 at restaurant. I see it's around $100 in Asia.
 
 ## Beer
 

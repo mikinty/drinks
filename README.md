@@ -88,6 +88,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
   - Grand Martiny: wine + martini
 - Vesper Bar at the Dorchestor (London): The Vesper
 - Whiskey Sour at Little Smith in Tokyo: The smokey accents on the thick foam...really good citrus flavor in the drink as well
+- Daiquiri at Bar Snack: Intense, fruity, herbaceous and fresh Daiquiri
 
 Generally I am a very classic cocktail person, so these drinks will make me happy:
 - Last Word

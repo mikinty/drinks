@@ -23,6 +23,7 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 - Jermann Where Dreams have no end: Such an artistic wine, amazing, sharp smells, and you can barely tell this is Chardonnay. ~$60.
 - Far Niente Napa Valley Chardonnay: If you want a more serious Napa Chardonnay, good oak balance, old vine flavor and that dried grass herbal flavor. This is your wine. $60.
 - Chateau Montelena Chardonnay: Really ripe and rounded Chardonnay, not too buttery. ~$60.
+- Benoit Ente: Antichtone Bourgogne Aligote: Structured, flinty, green white wine. Good body and serious wine. ~$80.
 - Prager: The Gruner Veltliner are so vibrant, intense fruit, slight smoke and long finish. ~$80.
 - Emrich-Schonleber - Fruhlingsplatzchen Riesling Grosses Gewachs:  Really intense flavors, fresh and vibrant. Very tasty and long finish. ~$85.
 - Kongsgaard Chardonnay: While the Judge is more well-known, this (much) cheaper Chardonnay still has the intense funky native yeast and old vine flavor Kongsgaard is known for. Very interesting and serious wine. ~$125.

@@ -68,10 +68,23 @@ Drinks I have deep experiences with. Very subjective so feel free to disagree.
 
 - Kirin Ichiban: Seems like beer fanatics are not about this, but I like how crisp and clean this beer is.
 - Flower Power from the Ithaca Beer Co: Unsure why I remember this so much and like it, but it's good.
+- Guinness: My favorite casual beer! Best places I've had them are Dublin, Toucan, Dead Rabbit. The freshest pours are in Ireland and UK, as expected. And it's very important for the beer to be fresh!
+- Plan Bee: A small brewery in Poughkeepsie and near the CIA culinary institute. The area is fun and there's a basketball hoop on the side of the barn you can shoot at while drinking some beers. The beers are saison style and funky, but very interesting and delicious!
 
 ## Whiskey
 
 - Lagavulin 16 or the 11 Offerman Edition I like a lot. For me it's the perfect balance of sweet, peatiness, smoke and intensity. Obviously to each their own, but this is the one I can drink neat, with ice, or in a cocktail (whiskey sour preferred)
+
+## Bars
+
+Since cocktails will rotate in and out of bars, I thought it may be better to create a bar list for myself instead:
+
+* The Dead Rabbit: all time favorite bar, both parlour and pub area are amazing. Hospitality, technique, influence, and even the food, are all so good. The complete package.
+* Swift SOHO in London: This is basically Dead Rabbit to me in London. They actually have a better Irish Coffee IMO, and their drinks are amazing. Also hand ice picking and shaping for all the big ice drinks, splash zone!
+* French 75 Bar in NOLA: They make all the classics so well
+* Satan's Whiskers: Make classics super good, very good hospitality and technique
+* Martiny's: The lounge upstairs is not really worth going to, overpriced and no vibes. It has to be downstairs, bar preferred or hightop table, where you get the full action and the better drink selection too.
+* Little Smith Tokyo: A serious serious cocktail place. They can make anything you want, but their Whiskey Sour is killer.
 
 ## Cocktails
 
